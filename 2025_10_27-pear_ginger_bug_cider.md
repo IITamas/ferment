@@ -51,6 +51,8 @@ This is how it looked, it was nice and tangy, and really active, just fed it the
 
 ### Fermentation
 
+- 2025/10/28 9PM - A little bubbling, a little vomit smell, added another half a lemon to it, and stirred it vigorosly, hopefully the smell will disapate after some time
+
 ## Notes
 
 - Always have a plan for the fruit pulp and rest of the discards (I made pear butter from the pulp, which was great!)
